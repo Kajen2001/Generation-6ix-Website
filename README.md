@@ -1,1 +1,1 @@
-PhvcfghgvREVIEW OF THE WEBSITE (WORK IN PROGRESS): https://kajen2001.github.io/gen-six-website/
+This is a website made for Generation 6ix Junior Achievement company.
